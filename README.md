@@ -1,0 +1,1 @@
+# jgdy3_dziennik
